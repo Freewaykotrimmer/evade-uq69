@@ -1,4 +1,4 @@
-#  
+#  Experience evade like never before with evade Script hidden, the #1 Script. Includes aimbot and auto-heal for unbeatable performance.
 
 
 
